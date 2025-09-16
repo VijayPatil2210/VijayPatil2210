@@ -9,7 +9,8 @@
 
 ## 📬 Reach Me At
 - ✉️ Email: vijayrp2225@gmail.com  
-- 🔗 [LinkedIn](https://linkedin.com/in/vijay-patil2210)  
+- 🔗 [LinkedIn](https://linkedin.com/in/vijay-patil2210)
+- 📸 [Instagram](https://instagram.com/vijuu.__?igsh=M2xzenI0ano4dmp0)
 - 🌐 [Portfolio](https://yourportfolio.com)  
 
 ---
